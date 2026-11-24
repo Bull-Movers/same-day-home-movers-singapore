@@ -19,7 +19,8 @@ Situations where same day moving helps:**
 **How to Prepare for a Same Day Move**
 
 Preparation is the secret to speed. Before the movers arrive, set aside fragile items, pack small belongings into boxes, and empty drawers that contain loose items. Take photos of furniture condition and electronics wiring so reassembly is easier later.
-Be ready with key details when you call. The more accurate your information, the faster the quote and dispatch. Many people also search for cheap house movers Singapore options for 
+Be ready with key details when you call. The more accurate your information, the faster the quote and dispatch. Many people also search for cheap house movers Singapore options for urgent jobs, and it is fair to compare, but remember that very low urgent quotes may hide extra charges.
+
 <img width="481" height="191" alt="image" src="https://github.com/user-attachments/assets/91edb880-4bd3-4c52-ad57-13d6d5a698e4" />
 
 If your move involves an instrument, ask directly about a piano moving service, since pianos need specialised handling even in urgent situations.
